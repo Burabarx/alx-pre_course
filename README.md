@@ -1,2 +1,1 @@
-My first readme
-up to date in git
+Jesus the lover of my soul
